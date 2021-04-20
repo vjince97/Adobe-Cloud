@@ -4,3 +4,6 @@ Adobe is not only a multi-national software company that has uplifted design, gr
 
 Click here 👉 https://www.adobe.com/careers/why-adobe.html 👈 to learn more why Adobe can shape your career while making an impact by spreading and engaging creativity for all. 
 
+Curious to see what Adobe has been making an impact on? 🕶 https://www.adobe.com/creativecloud/3d-augmented-reality.html
+
+Learn more on how Adobe Sensei is providing data and services for multiple utilization across the business platforms to combine creativity 🎨 and 💻data together. https://www.adobe.com/sensei.html
